@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mmanthey1994
 - 👀 I’m interested in: Mathematics (Statistics and Probability)
-- 🌱 I’m currently learning: Masters of Mathematics (Unimelb - Statistics and Stochastic Processes stream)
+- 🌱 I’m currently learning: PhD of Mathematics (Unimelb - Statistics and Stochastic Processes stream)
 - 📫 How to reach me: email = mmanthey1@gmail.com
 
 
